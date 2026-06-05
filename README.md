@@ -70,3 +70,10 @@ The structured EDA approach improves clarity, reproducibility, and analytical qu
 Author
 Abdul ajees.A
 Student at Kamaraj College Thoothukudi, Tamil Nadu
+<img width="753" height="594" alt="Screenshot 2026-06-05 134426" src="https://github.com/user-attachments/assets/fabefab9-f686-4d9e-90d0-ce819a6d1579" />
+<img width="519" height="487" alt="Screenshot 2026-06-05 134443" src="https://github.com/user-attachments/assets/bc121021-1053-4efd-81ad-afd5c19fa81a" />
+<img width="762" height="564" alt="Screenshot 2026-06-05 134458" src="https://github.com/user-attachments/assets/9956087b-36b6-4f22-85b3-1f330f3a5b09" />
+
+
+
+
